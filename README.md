@@ -9,7 +9,7 @@ Crayo AI is the perfect solution for generating high-quality content quickly. Do
 ![Crayo AI Promo Banner](https://i.ytimg.com/vi/31YDdnh3NTQ/hqdefault.jpg?sqp=-oaymwFBCOADEI4CSFryq4qpAzMIARUAAIhCGAHYAQHiAQoIGBACGAY4AUAB8AEB-AH-CYAC0AWKAgwIABABGBMgFyh_MA8=&rs=AOn4CLCuVo5KiG6c7intBPuqH0_2vYsqJA)
 
 # [Use this Exclusive link to get your discount](https://crayo.ai/?via=rambo)
-## [Use this Exclusive link to get your discount](https://crayo.ai/?via=rambo)
+## [Use this Exclusive link https://crayo.ai/?via=60Ooff
 ---
 
 ## Why Choose Crayo AI?
