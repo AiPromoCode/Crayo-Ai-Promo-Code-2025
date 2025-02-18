@@ -1,4 +1,6 @@
 # Crayo Ai Promo Code 2025 - Get 60% OFF Discount
+
+# [Use this Exclusive link to get your discount](https://crayo.ai/?via=rambo)
 # Crayo AI Promo Code 2025
 
 ## Unlock the Best Crayo AI Deals for 2025
